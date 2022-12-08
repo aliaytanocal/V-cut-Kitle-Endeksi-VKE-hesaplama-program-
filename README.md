@@ -1,0 +1,1 @@
+# V-cut-Kitle-Endeksi-VKE-hesaplama-program-
